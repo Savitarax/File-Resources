@@ -1,7 +1,14 @@
 A Word On This Topic and Explanation:
-These are the original files AMITXV created and I linked initially on my channel. However it has come to my attention that AMITXV has gone completely private/deleted his entire collection of tools and services. 
+
+These are the original files AMITXV created and I linked initially on my channel. 
+
+However it has come to my attention that AMITXV has gone completely private/deleted his entire collection of tools and services. 
+
+
 This includes Twitter/Github/Discord etc.
 AMITXV was immensly helpful to me and so many others and I hope that you all realize this.
+
+
 As far as I'm aware of the situation it seems that he was driven out by the very community he built and helped, whether this was toxicity or harassment is still undetermined at this time. 
 I don't have contact information with AMITXV. I wish I did but sadly that is not available.
 
