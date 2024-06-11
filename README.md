@@ -20,7 +20,7 @@ When you use these tools know that someone dedicated their time and effort to ma
 If you still want to view his repo tuning guide that is unbelievably comprehensive and detailed here is the link.
 https://github.com/heitorrosa/PC-Tuning/tree/main
 
-I am not affiliated with this person in any way/shape/form and I have no reason to assume that he has any relationship with AMITXV either. Please do not contact him requesting anything unless explicitly stated. 
+I am not affiliated with this person in any way/shape/form and I have no reason to assume that they have any relationship with AMITXV either. Please do not contact them requesting anything unless explicitly stated. 
 If you value anything I have ever done then please again considering donating to him. I can't thank him enough for the short time I had learning from him. 
 I'll keep this post updated as time progresses with a "UPDATED DETAILS" Section at the bottom of the post should anything come up.
 
